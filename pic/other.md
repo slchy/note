@@ -1,0 +1,1 @@
+![azure](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/web/other/azure.jpg)
