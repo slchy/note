@@ -1,1 +1,2 @@
-# hey
+# note
+just notes
