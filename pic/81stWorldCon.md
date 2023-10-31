@@ -122,6 +122,7 @@
 ![1021_颁奖_雨果奖6](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖6.jpg)
 ![1021_颁奖_雨果奖7](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖7.jpg)
 ![1021_颁奖_雨果奖8](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖8.jpg)
+![1021_颁奖_雨果奖9](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖9.jpg)
 ![1021_场馆_wsfs会员资格说明](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_场馆_wsfs会员资格说明.jpg)
 ![1021_场馆_签售1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_场馆_签售1.jpg)
 ![1021_场馆_签售2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_场馆_签售2.jpg)
