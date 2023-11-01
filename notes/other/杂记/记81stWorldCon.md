@@ -115,14 +115,14 @@
 > 讲座结束后，期待已久的重头戏部分终于要上演了。🦈先行入场，我和🪶老师去买KFC。买完后急匆匆来到会场外，不是很雅观的站在场外解决完，入场。雨果奖颁奖，开始了。![1021_颁奖_雨果奖1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖1.jpg)<br>![1021_颁奖_雨果奖2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖2.jpg)<br>![1021_颁奖_雨果奖3](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖3.jpg)<br>![1021_颁奖_雨果奖4](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖4.jpg)<br>![1021_颁奖_雨果奖5](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖5.jpg)<br>![1021_颁奖_雨果奖6](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖6.jpg)<br>![1021_颁奖_雨果奖7](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖7.jpg)<br>![1021_颁奖_雨果奖8](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖8.jpg)<br>坐我前面一排二位的行为挺好笑，不多表。<br>![1021_颁奖_雨果奖9](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_颁奖_雨果奖9.jpg)对于雨果奖颁奖典礼的节目，我的评价是：科幻春晚。唯二有节目性的是混剪。<br>
 > 颁奖典礼结束，听说还有粉丝派对，和🐑🦐约好在喜来登碰面后，和🦈出发。过去发现🐑和🦐不知所踪，便和🦈提前上楼去粉丝派对，电梯里遇见了🧑‍⚖️与子旋老师，子旋老师是粉丝派对的负责人。入场，子旋老师将大家召集起来，面色沉重，宣布：“你们都是基石。”随即为在场的每个人颁发了“我们是基石”丝带一条，X2。原因想必大家都猜得到。<!--为了确保组委会指定的嘉宾都有座可落，只能苦一苦基石们了--> 我们当然有充当基石的觉悟，表示理解。退场。<br>
 > 我和🦈在楼下漫无目的地走动，没曾想🐑🦐告诉我们他们已经进入粉丝派对，大为诧异，毕竟子旋老师都这么说了。马上回去打探打探情况。原来是子旋老师见来者甚多，且嘉宾未至，临时放我们进来坐一坐。环顾一周，两个不大的的房间相通，面积相仿。里间是U形桌，大家环坐，也有不少人间列。一大哥主持着话题，众人全神贯注。外间摩肩接踵，方桌上散落着《中文科幻学术速递》，不少丝带点缀其间，皆任意取用（大概是）。与方桌配套的是稀稀拉拉的椅子，座无虚席，或互相交谈，或翻阅杂志，或摆弄丝带。最外侧则是一条沙发，当然围坐数人，略有疲惫，神志恍惚，再次环顾，定睛一看，沙发赫然坐着杨潇老师。我驻足片刻，逐客令至，离。我们是基石X3。<br>![1021_周边_我们是基石](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_周边_我们是基石.jpg)<br>
-> 大部分人离开了，不愿离开的朋友们在喜来登一楼自发组织交流会。没一会儿，谭锴老师下来了，热情与幻迷们交流。<br>![1021_场馆_谭锴老师发言](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_场馆_谭锴老师发言.jpg)<br>谭锴老师讲了不少科幻世界的秘辛，第一，在此不表。第二，翻翻21世纪头几年的杂志就明白了，从香港引进的先进经验。我们几个也聊得挺开心，后面玩了海龟汤、看图造句，连句成篇。挺有意思。期间郭帆来了，合影留念。<br>![1021_合影_郭帆1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_合影_郭帆1.jpg)<br>再次和🦈🐑拼滴滴，归。
+> 大部分人离开了，不愿离开的朋友们在喜来登一楼自发组织交流会。没一会儿，谭锴老师下来了，热情与幻迷们交流。<br>![1021_场馆_谭锴老师发言](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_场馆_谭锴老师发言.jpg)<br>谭锴老师讲了不少科幻世界的秘辛，第一，在此不表。第二，翻翻21世纪头几年的杂志就明白了，从香港引进的先进经验。我们几个也聊得挺开心，后面玩了海龟汤、看图造句，连句成篇。挺有意思。索耶路过，🦈连忙从我包里掏出书，去找索耶签名，只可惜索耶没有停留的意思，错过了，回来装包时，🦈认错了包，把笔记和会员手册装到子旋老师的包旁边那包了，没有当场发现，回来接着聊天。其后郭帆来了，合影留念。<br>![1021_合影_郭帆1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_合影_郭帆1.jpg)<br>结束后再次和🦈🐑拼滴滴，归。
  
 
 ***
 
 ## 22日
 
-> 
+> 终于来到最后一天，今天同样精彩。今天八点才起，离校打滴滴来到会场，直奔地球厅。是<a href="https://weibo.com/1196900641/NpaMQqJdh" target="_blank">五十六年后的《科幻世界》</a>这场讲座。
 
 
 ***

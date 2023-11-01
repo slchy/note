@@ -143,3 +143,16 @@
 ![1021_讲座_人造神邸3](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_讲座_人造神邸3.jpg)
 ![1021_周边_即将入场](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_周边_即将入场.jpg)
 ![1021_周边_我们是基石](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1021_周边_我们是基石.jpg)
+
+***
+
+![1022_场馆_雨果之夜](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_场馆_雨果之夜.jpg)
+![1022_合影_海漄老师1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_合影_海漄老师1.jpg)
+![1022_合影_韩松老师1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_合影_韩松老师1.jpg)
+![1022_合影_韩松老师9](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_合影_韩松老师9.jpg)
+![1022_合影_何夕老师](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_合影_何夕老师.jpg)
+![1022_合影_克拉克1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_合影_克拉克1.jpg)
+![1022_讲座_56年后的科幻世界1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_讲座_56年后的科幻世界1.jpg)
+![1022_讲座_56年后的科幻世界2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_讲座_56年后的科幻世界2.jpg)
+![1022_签名_韩松老师](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_签名_韩松老师.jpg)
+![1022_周边_遗憾离场](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_周边_遗憾离场.jpg)
