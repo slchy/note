@@ -156,3 +156,9 @@
 ![1022_讲座_56年后的科幻世界2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_讲座_56年后的科幻世界2.jpg)
 ![1022_签名_韩松老师](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_签名_韩松老师.jpg)
 ![1022_周边_遗憾离场](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1022_周边_遗憾离场.jpg)
+
+***
+
+![1023_周边_幻迷来校2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校2.jpg)
+![1023_周边_幻迷来校3](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校3.jpg)
+![1023_周边_幻迷来校4](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校4.jpg)
