@@ -162,3 +162,9 @@
 ![1023_周边_幻迷来校2](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校2.jpg)
 ![1023_周边_幻迷来校3](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校3.jpg)
 ![1023_周边_幻迷来校4](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1023_周边_幻迷来校4.jpg)
+
+***
+
+![1102_其他_签名书丝带](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1102_其他_签名书丝带.jpg)
+![1102_其他_签名书丝带1](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1102_其他_签名书丝带1.jpg)
+![1102_其他_书](https://cdn.jsdelivr.net/gh/sakurakouji-luna/pic@main/other/81stWorldCon/1102_其他_书.jpg)
